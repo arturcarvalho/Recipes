@@ -9,10 +9,25 @@
 - 1.5 frascos de feijao
 - salsa (ramo)
 
-- 120g azeite
+__mix__
+- 120g azeite (deita na malga e pesa direto na malga)
 - 2 colher sopa vinagre
-- 1 colher cha cheia sal
+- 1 colher sobremesa sal fino
+- misturar c garfo
 
-ovos: deixar ferver e depois cozer 12 min
 arroz deixar ferver e depois cozer 12 min
 
+__ovos__
+- por ovos no tacho (n os partas)
+- por agua quente da torneira no tacho c tampa de vidro (a ferver nao!)
+- por bicarbonato de sodio
+- deixar ferver e depois cozer 12 min
+
+__arroz__
+- por 1.5l a ferver
+- por 2 sacos de arroz dentro de panela
+- juntar agua fervida
+- por 1.5 sal
+- misturar
+- deixar ferver
+- esperar 12min
