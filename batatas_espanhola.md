@@ -7,6 +7,12 @@
 - 3-4 dentes de alho (laminado)
 - 3 folhas loureiro
 
+- tirar espinhas do peixe
+- cortar peixe em bocados enormes
+- meter tudo na panela
+
+---
+
 mistura estas merdas todas c a varinha no copo alto:
 
 - mete 90g azeite no copo alto (pesa)
@@ -17,9 +23,6 @@ mistura estas merdas todas c a varinha no copo alto:
 
 ---
 
-- tirar espinhas do peixe
-- cortar peixe em bocados enormes
-
 - juntar tudo na panela e misturar c colher de pau
-- aquecer no 6 durante 35 min (BOCA GRANDE)
+- aquecer no 6 durante 38 min (BOCA GRANDE)
   - tirar tampa para evaporar agua durante 5 min
