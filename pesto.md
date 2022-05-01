@@ -36,6 +36,6 @@ meter dentro da cena de moer:
 - juntar 8 dentes de alho grandes
 - juntar parmesao (1.5 copos, 170g)
 - moer
-- juntar 1.2 copo de azeite ao poucos pelo buraco de cima
+- juntar 80% copo rosa de azeite ao poucos pelo buraco de cima
 - 1 teaspoon sal fino
 - pimenta preta qb
