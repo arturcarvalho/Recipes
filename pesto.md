@@ -33,9 +33,9 @@ meter dentro da cena de moer:
 - 5 caixas de manjericao (apenas folhas)
 - 1 copo pinhoes (aquele cor de rosa de plastico)
 - moer
-- juntar 8 dentes de alho grandes
+- juntar 3 dentes de alho grandes
 - juntar parmesao (1.5 copos, 170g)
 - moer
-- juntar 80% copo rosa de azeite ao poucos pelo buraco de cima
+- juntar 50% copo rosa de azeite ao poucos pelo buraco de cima
 - 1 teaspoon sal fino
 - pimenta preta qb
