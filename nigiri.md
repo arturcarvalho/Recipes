@@ -18,7 +18,7 @@ e.g.: 40 nigiris = 90 min
 - For each cup of rice, add the same water quantity
 - Put the rice in a pan and rinse it with water several times.
 	Use your hand to move the rice. Rinse it several times until water is clear.
-- Add half a teaspoon for each cup of rice.
+- Add half a teaspoon of salt for each cup of rice.
 - Heat water at max temp until it starts to boil
 - After it starts to boil, put a cloth between the pan and the lid.
 - Reduce temp to 5 on induction oven (still testing, probably 6)
