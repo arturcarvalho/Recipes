@@ -15,7 +15,7 @@ e.g.: 40 nigiris = 90 min
 
 # Recipe
 
-- For each cup of rice, add the same water quantity
+- For each cup of rice, add the 1.5 cups of water
 - Put the rice in a pan and rinse it with water several times.
 	Use your hand to move the rice. Rinse it several times until water is clear.
 - Add half a teaspoon of salt for each cup of rice.
