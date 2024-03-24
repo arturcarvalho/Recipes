@@ -24,7 +24,7 @@ e.g.: 40 nigiris = 90 min
 - Reduce temp to 5 on induction oven
 - Set timer 25 min
 - Test rice with small spoon (it should have some moisture)
-- Cool the rice in a big bowl (wooden seems better) by rotating it with a wooden spoon
+- Cool the rice in a big bowl (wooden seems better) by rotating it with a wooden spoon∫
 - Set timer 15 min
 
 
